@@ -13,7 +13,7 @@ https://gamejolt.com/games/lifeflow3d/314074
 
 Official LifeWOW page and game download:
 
-http://life.worldsowisdom.com/
+http://life.worldsowisdom.com/flow3d
 
 Email:
 
